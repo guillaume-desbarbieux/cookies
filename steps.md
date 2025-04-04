@@ -8,7 +8,7 @@ Préparation :
 
 4️⃣ Incorporez la farine, la levure et le sel. Mélangez jusqu’à obtenir une pâte homogène.
 
-5️⃣ Ajoutez les pistaches concassées et les morceaux de chocolat noir, puis mélangez délicatementyghfdgfxdgfdx.
+5️⃣ Ajoutez les pistaches concassées et les morceaux de chocolat noir, puis mélangez délicatement.
 
 6️⃣ Formez des boules de pâte et disposez-les sur une plaque recouverte de papier cuisson en les espaçant légèrement.
 
