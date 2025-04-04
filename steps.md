@@ -10,7 +10,7 @@ Préparation :
 
 5️⃣ Ajoutez les pistaches concassées et les morceaux de chocolat noir, puis mélangez délicatement.
 
-6️⃣ Formez des boules de pâte et disposez-les sur une plaque recouverte de papier cuisson en les espaçant légèrement.
+6️⃣ Formez des boules de pâte et disposeqsdqdqsdqsdz-les sur une plaque recouverte de papier cuisson en les espaçant légèrement.
 
 7️⃣ Enfournez pendant 10 à 12 minutes, jusqu'à ce que les bords soient légèrement dorés.
 
