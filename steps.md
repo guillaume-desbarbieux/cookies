@@ -16,4 +16,4 @@ Préparation :
 
 8️⃣ Laissez refroidir quelques minutes avant de déguster.
 
-bonne appétit.
+Bonne appétit.
