@@ -15,3 +15,5 @@ Préparation :
 7️⃣ Enfournez pendant 10 à 12 minutes, jusqu'à ce que les bords soient légèrement dorés.
 
 8️⃣ Laissez refroidir quelques minutes avant de déguster.
+
+bonne appétit.
