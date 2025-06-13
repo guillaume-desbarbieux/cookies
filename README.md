@@ -1,4 +1,13 @@
-﻿# recette-cookies
+# recette-cookies
+
+Pour supprimer un fichier du dépot distant mais le conserver en local :
+=> .gitignore pour que les futurs commits  en prennent pas en compte les fichiers indiqués
+=> git rm --cached (file) pour retirer du dépôt distant les fichiers spécifiés 
+
+
+
+
+
 
 Cookies à la pistache et pépites de chocolat 🍪💚
 Ingrédients (pour environ 12 cookies) :
